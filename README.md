@@ -10,6 +10,6 @@
 |             ***Series***             |                     ***Trailer***                     |
 | ------------------------------------ |  ---------------------------------------------------- |
 | Attack on Titan (2013 - 2023)        | [1](https://youtu.be/LV-nazLVmgo?si=psbhSwlFQv8XagLD) |
-| Kaiju No.8 (2026)                    | [2](https://youtu.be/JwF7bhvnCxI?si=rpPG_3LhUnCoQadi) |
+| Kaiju No.8 (2024 - 2025)             | [2](https://youtu.be/JwF7bhvnCxI?si=rpPG_3LhUnCoQadi) |
 | Though I am an Inept Villainess (2026)| [3](https://youtu.be/9FVMHNESgyo?si=NVNvOdM04NJvPB7j)|
 | Stranger Things (2016)               | [4](https://youtu.be/b9EkMc79ZSU?si=NCe3cmlkkBMWa9NX)|
